@@ -5,8 +5,6 @@
     - JS
 - 💞️ I’m looking to collaborate on web development projects with companies where I can apply my skills and contribute to innovative solutions while continuing to grow professionally.
 - 📫 How to reach me
-    - ludmilaa1105@gmail.com
-    - +54 9 2944 72-6629
     - https://www.linkedin.com/in/ludmila-pereyra-casta%C3%B1on-b89117317/
 - 😄 Pronouns: She/ her
 
